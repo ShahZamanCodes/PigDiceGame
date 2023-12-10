@@ -40,12 +40,12 @@
 
 ## Contact Information
 
-For questions or support, contact at manniee560@gmail.com
+For questions or support, contact at mshahzaman.official@gmail.com
 
 
 
 ## Follow
-  https://www.linkedin.com/in/shah-zaman-a67b821b2
+  https://www.linkedin.com/in/shahzaman560
 
 
 
